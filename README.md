@@ -5,7 +5,6 @@ Essay Proposal and Critical Bibliography
 ========================================
 
 + Hannah Sharp
-+ B00684118
 + IXD502: Research and Writing
 
 
